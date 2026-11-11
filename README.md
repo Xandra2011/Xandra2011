@@ -1,4 +1,4 @@
-# 💫 About Me:
+# abt me:
 HII im Xandra <br>im 15yo<br>i guess im mature in some way<br>i'd love to meet new people 
 
 
